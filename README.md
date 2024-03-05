@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Claude216
 - 👀 I’m interested in software development
-- 🌱 I’m currently a graduated computer science major student from UCSC
+- 🌱 I’m currently looking for opportunities as a full-stack engineer, or a backend engineer
 - 📫 How to reach me: llxclaude126@gmail.com
 
 <!---
