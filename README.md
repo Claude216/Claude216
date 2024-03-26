@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **llxclaude126@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1dSWo1IE2ISfLODY9Yn_OfoAam2Mbh_3l/view?usp=sharing](https://drive.google.com/file/d/1dSWo1IE2ISfLODY9Yn_OfoAam2Mbh_3l/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1BC8LMTt3kS9Ewjjbr1vhJ22a-l0AQNlX/view?usp=sharing](https://drive.google.com/file/d/1BC8LMTt3kS9Ewjjbr1vhJ22a-l0AQNlX/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
