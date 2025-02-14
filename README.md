@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Claude Li</h1>
+<h1 align="center">Hi 👋, I'm Lunxiao Li</h1>
 <h3 align="center">Passionate Full-Stack Developer & AI Enthusiast</h3>
 
 - 🌱 I’m currently learning **Rust**
